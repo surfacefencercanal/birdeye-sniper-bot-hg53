@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate Scanner for birdeye sniper bot | bundle-transactions & multi-chain-support, the #1 birdeye sniper bot. Includes bundle-transactions and
 
 
 
